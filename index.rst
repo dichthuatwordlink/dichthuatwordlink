@@ -6,7 +6,7 @@ Công ty dịch thuật WordLink là công ty dịch thuật chuyên nghiệp, u
 
 - VP Hà Nội:  Số 11 phố Duy Tân, quận Cầu Giấy, Hà Nội
 
-https://dichthuatwordlink.com/
+https://dichthuatworldlink.com/
 
 https://dichthuatwordlink.wordpress.com/
 
